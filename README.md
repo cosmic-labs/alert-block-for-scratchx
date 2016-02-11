@@ -1,1 +1,0 @@
-# alert-block-for-scratchx
